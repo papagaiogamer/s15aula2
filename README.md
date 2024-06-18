@@ -1,3 +1,2 @@
-
-O presidente russo Vladimir Putin chega à Coreia do Norte nesta terça-feira (18), em sua primeira visita ao país em 24 anos, para se encontrar o líder Kim Jong Un, anunciaram os dois países na noite de segunda. O encontro, que vai durar dois dias, acontece em meio a um estreitamento de laços entre Moscou e Pyongyang. 
+O líder norte-coreano Kim Jong Un estendeu um convite a Putin durante uma visita ao Extremo Oriente da Rússia em setembro de 2023. A última visita de Putin à Coreia do Norte foi em julho de 2000. 
 
